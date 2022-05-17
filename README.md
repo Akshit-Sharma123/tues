@@ -1,2 +1,2 @@
 # tues
-It is a good and sunny day
+It is a warm today
